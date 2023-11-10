@@ -6,7 +6,7 @@
 
  ### This opportunity is completely free and unlimited. Millions of GPTs will soon be created, and getting a head start is crucial.
 
-## Add ypur GPTs here : https://gptspedia.io
+## Add your GPTs here : https://gptspedia.io
 
 Twitter: https://twitter.com/GPTsPedia
 
