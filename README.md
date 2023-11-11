@@ -1,6 +1,6 @@
 # GPTsPedia.io
 
- ### Share your GPTs and apply to be the GPT OF THE WEEK!
+ ### Vote For the Best 🤖GPTs🤖 of the Week on GPTsPedia.io 🚀 ✨
 
  ### Each week the GPTs with the most votes will be honoured!
 
