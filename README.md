@@ -2,8 +2,6 @@
 
  ### Each week the GPTs with the most votes will be honoured!
 
- ### This opportunity is completely free and unlimited. Millions of GPTs will soon be created, and getting a head start is crucial.
-
 ## Vote here : https://gptspedia.io
 
 Twitter: https://twitter.com/GPTsPedia
